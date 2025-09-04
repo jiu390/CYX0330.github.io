@@ -11,6 +11,6 @@ Email: 231810089@smail.nju.edu.cn
 #### Education
 B.A., Journalism and Communication, Nanjing University, 2023—Present.
 
-#### Research Interests
-Deep Learning, Artificial Intelligence Seismology, Mine Microseismic.
+#### Hobbies
+Podcasts, Stand-up Comedy, Swimming, Reading.
 
